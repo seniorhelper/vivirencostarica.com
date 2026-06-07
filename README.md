@@ -1,0 +1,2 @@
+# vivirencostarica.com
+vivirencostarica.com
